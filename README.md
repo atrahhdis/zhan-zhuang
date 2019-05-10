@@ -29,9 +29,9 @@ work in progress
 
 ## How to practice Zhan Zhuang
 
-- [Stand Still, Be Fit - 10 day excercise programme](https://www.youtube.com/watch?v=y07FauHYlmg&list=PL5AC656794EE191C1) by [Master LAM, Kam-Chuen](http://www.lamkamchuen.com)
-  
-**Lessons:** [1](https://www.youtube.com/watch?v=y07FauHYlmg), [2](https://www.youtube.com/watch?v=UJx8cpGauiA), [3](https://www.youtube.com/watch?v=RwlGisBCGA8), [4](https://www.youtube.com/watch?v=_WuK6XbZQyg), [5](https://www.youtube.com/watch?v=Fec9OIRRJPk), [6](https://www.youtube.com/watch?v=B2LPoUZ_zEo), [7](https://www.youtube.com/watch?v=zhK0CH8TJiQ), [8](https://www.youtube.com/watch?v=MlYuaNqzw-o) , [9](https://www.youtube.com/watch?v=r1TzcWAfAeQ), [10](https://www.youtube.com/watch?v=-mbeZF28gtw)
+### [Stand Still, Be Fit - 10 day exercise programme](https://www.youtube.com/watch?v=y07FauHYlmg&list=PL5AC656794EE191C1) by Master LAM, Kam-Chuen 
+
+ **Lessons:** [1](https://www.youtube.com/watch?v=y07FauHYlmg), [2](https://www.youtube.com/watch?v=UJx8cpGauiA), [3](https://www.youtube.com/watch?v=RwlGisBCGA8), [4](https://www.youtube.com/watch?v=_WuK6XbZQyg), [5](https://www.youtube.com/watch?v=Fec9OIRRJPk), [6](https://www.youtube.com/watch?v=B2LPoUZ_zEo), [7](https://www.youtube.com/watch?v=zhK0CH8TJiQ), [8](https://www.youtube.com/watch?v=MlYuaNqzw-o) , [9](https://www.youtube.com/watch?v=r1TzcWAfAeQ), [10](https://www.youtube.com/watch?v=-mbeZF28gtw) ([Stand Still, Be Fit - 10 day excercise programme](https://www.youtube.com/watch?v=y07FauHYlmg&list=PL5AC656794EE191C1))
 
 
-- [Inside Zhan Zhuang - The Nuts and Bolts of Standing Meditation](https://www.youtube.com/watch?v=oisUCDAPS_8&list=PL05ECD69C387DEB30) by [Mark Cohen](http://insidezhanzhuang.com/)
+### [Inside Zhan Zhuang - The Nuts and Bolts of Standing Meditation](https://www.youtube.com/watch?v=oisUCDAPS_8&list=PL05ECD69C387DEB30) by [Mark Cohen](http://insidezhanzhuang.com/)
