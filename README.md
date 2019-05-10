@@ -42,4 +42,4 @@ work in progress
  - [day 10](https://www.youtube.com/watch?v=-mbeZF28gtw)
 
 
-- [Inside Zhan Zhuang - The Nuts and Bolts of Standing Meditation] (https://www.youtube.com/watch?v=oisUCDAPS_8&list=PL05ECD69C387DEB30) by [Mark Cohen](http://insidezhanzhuang.com/)
+- [Inside Zhan Zhuang - The Nuts and Bolts of Standing Meditation](https://www.youtube.com/watch?v=oisUCDAPS_8&list=PL05ECD69C387DEB30) by [Mark Cohen](http://insidezhanzhuang.com/)
