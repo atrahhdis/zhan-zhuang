@@ -1,4 +1,4 @@
-# zhanzhuang
+# Zhan Zhuang
 Useful information about **Zhan Zhuang**, a Chinese training method.
 
 ## What it is
