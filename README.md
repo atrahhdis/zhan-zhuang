@@ -1,4 +1,5 @@
-# Zhan Zhuang
+# Zhan Zhuang - The Ancient Art of Standing Like a Tree
+
 Useful information about **Zhan Zhuang**, a Chinese training method.
 
 ## What it is
