@@ -1,2 +1,0 @@
-- added "PREFACE" to include "How to use this book", "Foreword" and introduction
-- confused with the text after "CHI KUNG - THE ENERGY EXERCISE" - I assumed that it's the continuation of this section
